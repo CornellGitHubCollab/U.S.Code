@@ -1,1 +1,1 @@
-# U.S.Code
+The United States Code (U.S. Code), is the codification by subject matter of the general and permanent laws of the United States. It is divided by broad subjects into 53 titles and published by the Office of the Law Revision Counsel of the U.S. House of Representatives.
